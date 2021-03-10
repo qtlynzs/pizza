@@ -1,0 +1,1 @@
+The pizza recipe is basiclly all the topings on 1 slice. The recipe is cheese and tomato sauce and pepperoni. 
